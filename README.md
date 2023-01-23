@@ -1,8 +1,11 @@
 # GoodVives
 
 I expect the best, aspire for the best, and do my best.
+
 As the sun shines after the night is over, so success appears after problems and failure.
+
 If some people achieve success, it means that others can too, including you.
+
 It does not cost money to think, feel and act positively, and it does not cost money to think, feel and act negatively, so why not choose to think, feel and act positively?
 If you want success, you don’t sit down moan and complain. Instead, make plans and carry them out.
 If you don’t like the kind of life you are living now, start making changes. You can live a different lifestyle. All you need is ambition, motivation, a good plan and perseverance. 
