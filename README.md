@@ -1,8 +1,7 @@
 # GoodVives
 
-I expect the best, aspire for the best, and do my best.
-
-As the sun shines after the night is over, so success appears after problems and failure.
+I expect the best, aspire for the best, and do my best.\n
+As the sun shines after the night is over, so success appears after problems and failure. \n
 
 If some people achieve success, it means that others can too, including you.
 
